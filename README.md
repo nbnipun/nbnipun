@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nbnipun
+- 👋 Hi, I’m Nashid Bashar
 - 👀 I’m interested in movies.
 - 🌱 My profession is digital marketing.
 - 💞️ I love to learn and share.
